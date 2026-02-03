@@ -6,7 +6,7 @@
 #### 6
 #### 7 boi
 #### 8
-#### 9 git hub is rlly good
+#### 9 Github is really awesome
 #### 10
 #### 11
 #### 12
